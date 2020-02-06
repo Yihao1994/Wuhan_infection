@@ -31,6 +31,6 @@ English version will be uploaded soon.
 Enjoy! :)
 
 
-                                                                                                     superdarkvoice@gmail.com
+                                                                                                         yihaosun94@gmail.com
                                                                                                                     Yihao Sun
                                                                                                                    05.02.2020
